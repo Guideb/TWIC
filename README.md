@@ -1,2 +1,0 @@
-# TWIC
-TWIC seance vendredi
